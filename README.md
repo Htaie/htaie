@@ -9,7 +9,7 @@
 
 ###
 
-<img align="right" height="150" src="https://psv4.userapi.com/c505536/u148588090/docs/d7/9ac2e1d7448c/Strast_K_Kureniyu.gif?extra=OJ3wF8L0MWIZjmTbLxM5b4qjit1NqlwQ_l-HnGt0xtAH8FAwK8sLdIJPD2hKvScSNf1w7Ja6TCR7lr9ft9gTxnmfefIYg1aoctVP8iO84Gm6iCD1dE_Lc2XgETApCh0qEGUTl0LzGsT6aiOBbzFo6aCPRA"  ddd />
+<img align="right" height="150" src="https://psv4.userapi.com/c505536/u148588090/docs/d7/9ac2e1d7448c/Strast_K_Kureniyu.gif?extra=OJ3wF8L0MWIZjmTbLxM5b4qjit1NqlwQ_l-HnGt0xtAH8FAwK8sLdIJPD2hKvScSNf1w7Ja6TCR7lr9ft9gTxnmfefIYg1aoctVP8iO84Gm6iCD1dE_Lc2XgETApCh0qEGUTl0LzGsT6aiOBbzFo6aCPRA"  />
 
 ###
 
