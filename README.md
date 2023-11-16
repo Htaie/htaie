@@ -9,7 +9,7 @@
 
 ###
 
-<img align="right" height="150" src="https://psv4.userapi.com/c505536/u148588090/docs/d7/9ac2e1d7448c/Strast_K_Kureniyu.gif?extra=OJ3wF8L0MWIZjmTbLxM5b4qjit1NqlwQ_l-HnGt0xtAH8FAwK8sLdIJPD2hKvScSNf1w7Ja6TCR7lr9ft9gTxnmfefIYg1aoctVP8iO84Gm6iCD1dE_Lc2XgETApCh0qEGUTl0LzGsT6aiOBbzFo6aCPRA"  />
+<img align="right" height="150" src="https://sun9-37.userapi.com/impg/g3We7X3bEwfu3eEysIIXPBFHQd8p97d9PJ7iVA/Aly0d7onR9c.jpg?size=234x185&quality=95&sign=50dd9b15ec613a41136b1b00c4e59d14&type=album"  />
 
 ###
 
@@ -33,7 +33,7 @@
 
 <br clear="both">
 
-<img src="https://raw.githubusercontent.com/htaie/htaie/output/snake.svg" alt="Snake animation" />
+<img src="https://sun9-14.userapi.com/impg/SkeMnOx-Osof9Lx6TDLbrkYqVsSTToN_CObqqw/1M-Z8OU8eOA.jpg?size=695x434&quality=95&sign=2903c0408b775c361b8e614d532e4a35&type=album" alt="Snake animation" />
 
 ###
 
